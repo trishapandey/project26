@@ -1,0 +1,1 @@
+Pasta, vegetable oil, garlic, onion, tomato paste/sauce, heavy whipping cream, cheese, salt, red chilli powder, and pepper.
